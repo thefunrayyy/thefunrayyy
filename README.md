@@ -1,2 +1,1 @@
-## Hi there 👋
-i dont fucking know what im doing!
+I dont even use github :sob:
